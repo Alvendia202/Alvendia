@@ -1,6 +1,6 @@
 # Mary Alvendia
 
-**'(Mobile Developer)'**
+**Mobile Developer**
 
 Highly motivated and enthusiastic in mobile development. 
 Eager to apply and continuous learning mindset to 
